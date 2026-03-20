@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-ROCC841217HDFDRR00
+ROCC841217HDFDRR00
